@@ -1,0 +1,1 @@
+# carregador-xiaomi-hypercharge-120w-cabo-usb-a
